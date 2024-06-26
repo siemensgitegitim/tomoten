@@ -1,2 +1,2 @@
 # tomoten
-Tomoten uygulaması egitim reposu
+Tomoten uygulaması egitim reposuna hosgeldiniz.
