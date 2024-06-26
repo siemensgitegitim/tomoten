@@ -1,2 +1,7 @@
 # tomoten
 Tomoten uygulaması egitim reposuna hosgeldiniz.
+djklşsdjklşsdjklşsdjkaslda
+kasdlşkdsail,şkdasiş,ldsaşildsa
+kdasşikdfsaşi,dlsaşidsal
+kldfşsakdsalşikdsaşi,ldklsaiş,ldsaiş,ldsa,
+klşidaskldşsaklşdisalşdisa
